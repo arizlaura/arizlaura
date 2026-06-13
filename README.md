@@ -40,7 +40,7 @@ Cloud & DevOps Support Engineer with experience in cloud infrastructure support,
 
 ## 📫 Connect with me
 
-LinkedIn: linkedin.com/in/laura-ariza
+LinkedIn: linkedin.com/in/laura-rosa-ariza-vanegas-452506215
 GitHub: github.com/arizlaura
 
 
